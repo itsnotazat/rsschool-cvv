@@ -1,1 +1,1 @@
-https://itsnotazat.github.io/rsschool-cv/cv
+https://itsnotazat.github.io/rsschool-cv/
